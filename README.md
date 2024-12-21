@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Rubyaichan@gmail.com**
 
-- ⚡ Fun fact **I like drawing**
+- ⚡ Fun fact **I like design**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
